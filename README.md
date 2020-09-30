@@ -1,2 +1,2 @@
-# Kushal.in
+# Kushalchaki.in
 I am Kushal Chaki look
