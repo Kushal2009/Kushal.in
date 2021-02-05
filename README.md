@@ -1,2 +1,2 @@
-# Kushal.github.io
-I am Kushal Chaki look
+# Kushal.in
+I am Kushal Chaki
